@@ -58,9 +58,9 @@ I like building things where AI meets real problems. Lately that means climate a
 
 ## 💼 Experience
 
-- **Co-founder, UI/UX** at ElByte Technology Solutions Group *(2025 to present)*
+- **Member, UI/UX** at ElByte Technology Solutions Group *(2025 to present)*
 - **Administrative Aide** at WVSU Public Affairs and Marketing Communications Office *(Nov 2024 to Jun 2026)*, publicity materials, newsletter layouts, and official university visuals
-- **AV Technical Support & Document Digitization** at DSWD KALAHI-CIDSS
+- **AV Technical Support & Document Digitization** at DSWD KALAHI-CIDSS *(June 2024 to Nov 2024)*
 
 ---
 
